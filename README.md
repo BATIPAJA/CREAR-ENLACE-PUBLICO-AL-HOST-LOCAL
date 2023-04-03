@@ -16,3 +16,11 @@ INSTALACION (TERMUX)
 □ y listo ya tendriamos nuestro enlace publico sin
 Tener que clonar un repositorio recuerden que esto
 No es profecional pero es facil de crear :>
+
+
+
+LINK DEL GRUPO DE WASHATPP
+
+https://chat.whatsapp.com/F33vcjie9xO20Z4hOVFVpm
+
+No c como poner capturas de pantalla ayudaaaa :(
